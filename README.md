@@ -1,0 +1,2 @@
+# 2420190042-Alpro-SK2019-2020-1-4
+study kasus 2420190042 AlPro-SK2019-2020-1-4 [m zamroni] 
